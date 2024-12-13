@@ -2,6 +2,10 @@
 💞欢迎大家对各部分进行友善投稿！
 👆🏻非官方组织用于为爱发电，更多南天联官方信息，请关注大群。
 
+![](https://github.com/BI7AQU/AUNU-Daily-Astronomy/blob/main/Archive/Daily%20Astronomy_12.13.jpg)
+
+![](https://github.com/BI7AQU/AUNU-Daily-Astronomy/blob/main/Archive/Daily%20Astronomy_12.12.jpg)
+
 ![](https://github.com/BI7AQU/AUNU-Daily-Astronomy/blob/main/Archive/Daily%20Astronomy_12.11.jpg)
 
 ![](https://github.com/BI7AQU/AUNU-Daily-Astronomy/blob/main/Archive/Daily%20Astronomy_12.10.jpg)
