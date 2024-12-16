@@ -1,6 +1,8 @@
 # 星空飨宴
-💞欢迎大家对各部分进行友善投稿！
-👆🏻非官方组织用于为爱发电，更多南天联官方信息，请关注大群。
+💞欢迎大家对各部分进行友善投稿！<br>
+👆🏻投稿邮箱：<br>
+文章：mint20051018@outlook.com<br>
+图片：steveling0231@foxmail.com<br>
 
 ![](https://github.com/BI7AQU/AUNU-Daily-Astronomy/blob/main/Archive/Daily%20Astronomy_12.16.jpg)
 
