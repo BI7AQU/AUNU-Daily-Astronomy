@@ -3,6 +3,9 @@
 👆🏻投稿邮箱：<br>
 文章：mint20051018@outlook.com<br>
 图片：steveling0231@foxmail.com<br>
+![](https://github.com/BI7AQU/AUNU-Daily-Astronomy/blob/main/Archive/Daily%20Astronomy_12.18.jpg)
+
+![](https://github.com/BI7AQU/AUNU-Daily-Astronomy/blob/main/Archive/Daily%20Astronomy_12.17.jpg)
 
 ![](https://github.com/BI7AQU/AUNU-Daily-Astronomy/blob/main/Archive/Daily%20Astronomy_12.16.jpg)
 
